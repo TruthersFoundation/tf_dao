@@ -1,7 +1,7 @@
 ![Truthers Foundation Repository Banner](tf_banner.png)
 
 # Truthers Foundation
-Our community began with random truth seekers coming together on X to discuss the physics concerning Earth. 🌎
+We are an international group of truth seekers coming together to discuss the physics of Earth. 🌎
 
 Thanks to the  work of individuals who conducted countless hours of research into the core, scientific and philosophical tenets driving today's physics community, we've been able to collectively attain a deeper level of understanding about these things. We now know there are a number of fundamental issues that have led science off in directions away from the truth of our reality and we seek to offer whatever we can to contribute toward the cause of discovering a much more accurate, concrete model of Earth and its surroundings.
 
